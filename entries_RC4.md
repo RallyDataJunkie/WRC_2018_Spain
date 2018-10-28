@@ -1,0 +1,34 @@
+## Group RC4:
+
+
+- Taisko LARIO (FIN) and co-driver Tatu HÄMÄLÄINEN (FIN) from the TAISKO LARIO.
+- Enrico BRAZZOLI (ITA) and co-driver Luca BELTRAME (ITA) from the ENRICO BRAZZOLI .
+- Louise COOK (GBR) and Stefan DAVIS (GBR) of the LOUISE COOK.
+- Amaury MOLLE (BEL) and Renaud HERMAN (BEL) of the AMAURY MOLLE.
+- Jean-Baptiste FRANCESCHI (FRA) and co-driver Romain COURBON (FRA) for the EQUIPE DE FRANCE .
+- Tom WILLIAMS (GBR) and co-driver Phil HALL (GBR) for the TOM WILLIAMS.
+- Jan SOLANS (ESP) and Mauro BARREIRO (ESP) for the ESCUDERIA MOTOR TERRASA.
+- Josep BASSAS (ESP) and Manuel MUÑOZ (ESP) for the RACC MOTORSPORT.
+- Jose REYES (ESP) and Jose BARRAN (ESP) for the ESCUDERIA A. FERROL.
+- Roberto BLACH (ESP) and Jose MURADO (ESP) of the GAMACE MC COMPETICION.
+- Alvaro PÉREZ (ESP) and co-driver Brais MIRÓN (ESP) from the ESCUDERIA BERBERECHO.
+- Julio Andres MARTINEZ (ESP) and Diego CORTA (ESP) for the ESCUDERIA DRAGO RALLYE.
+- Diogo GAGO (PRT) and Miguel RAMALHO (PRT) from the MCOUTINHO RACING.
+- Hugo LOPES (PRT) and co-driver Nuno RIBEIRO (PRT) from the HUGO LOPES.
+- Pedro ANTUNES (PRT) and Paulo LOPES (PRT) of the PEDRO ANTUNES.
+- Ricardo SOUSA (PRT) and co-driver Luis MARQUES (PRT) for the RICARDO SOUSA.
+- Ivan MEDINA (ESP) and co-driver Ariday BONILLA (ESP) from the ESCUDERIA ATERURA.
+- Alberto SAN SEGUNDO (ESP) and co-driver Juan Luis GARCIA (ESP) of the FMC-UCAV RACING ENGINEERING.
+- Paulo MOREIRA (PRT) and co-driver Marco MACEDO (PRT) from the PAULO MOREIRA.
+- Nabila TEJPAR (GBR) and co-driver Max FREEMAN (GBR) of the NABILA TEJPAR.
+- Luciano BONOMI (ARG) and co-driver Laureano GRIGERA (ARG) for the LUCIANO BONOMI.
+- Oriol GOMEZ (ESP) and Axel CORONADO (ESP) of the GAMACE MC COMPETICION.
+- Abel TORRELLES (ESP) and co-driver Xavier CARULLA (ESP) for the GCMOTORSPORT.
+- Miquel LABARIAS (ESP) and co-driver Cristian MUÑOZ (ESP) from the ESCUDERIA MOTOR TERRASA.
+- Albert COTANO (ESP) and co-driver Andreu PASCUAL (ESP) of the GCMOTORSPORT.
+- Alexis ROMERO (ESP) and Martin DOMÍNGUEZ (ESP) for the C.D. EL MENTIDERO.
+- Luc GELLUSSEAU (FRA) and co-driver Charles-Antoine DE JOUX (FRA) for the LUC GELLUSSEAU.
+- Phillippe GOMEZ (FRA) and co-driver Gilles COMBE (FRA) for the PHILIPPE GOMEZ.
+- Carlo COVI (ITA) and Simone ANGI (ITA) of the SIMONE ANGI.
+- Paolo RAVIGLIONE (ITA) and co-driver Marco DEMONTIS (ITA) for the PAOLO RAVIGLIONE.
+- Anna TALLADA (ESP) and co-driver Laura CAMPS (ESP) for the MOTOR CLUB SABADELL.
